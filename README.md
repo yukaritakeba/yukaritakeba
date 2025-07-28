@@ -1,4 +1,8 @@
-## <img width="357" height="699" alt="Yukari_Takeba___Persona_3_Reload-removebg-preview" src="https://github.com/user-attachments/assets/14d5a94d-6ed8-4ced-8461-01d6c9bd5172" />
+## 
+
+https://github.com/user-attachments/assets/eced5f30-7d91-40bb-a5f6-053ad0c6da51
+
+
 
 <!--
 **yukaritakeba/yukaritakeba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
